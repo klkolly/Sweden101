@@ -110,3 +110,18 @@
 - B站 [marcsims](https://www.bilibili.com/video/BV1fd4y1P7QF/?spm_id_from=333.999.0.0): 欧陆留学移民指北
 - B站 [Fera__](https://www.bilibili.com/video/BV1QX4y1f7Pk/?spm_id_from=333.999.0.0): 欧陆留学指北（从金融跑路版）
 - [numbeo.com](https://www.numbeo.com/cost-of-living/country_price_rankings?displayCurrency=USD&itemId=105&region=150): Rankings by Country of Average Monthly Net Salary (After Tax)
+
+## 14 mentor programe and find work
+瑞典英语学习  英语6即可申请普通专业  商科有的需要英语7 
+
+[huddinge english 5](https://huddinge.alvis.se/hittakurser/kurs/63469?hittaKurserPageModel.HittaKurserViewModel.Search=engel&hittaKurserPageModel.HittaKurserViewModel.SokMetod=sok&hittaKurserPageModel.HittaKurserViewModel.SelectedSkolformId=0&hittaKurserPageModel.HittaKurserViewModel.SelectedKurskategoriId=0&hittaKurserPageModel.HittaKurserViewModel.SelectedAmnesomradeId=0&hittaKurserPageModel.HittaKurserViewModel.SelectedSkolaId=0&hittaKurserPageModel.HittaKurserViewModel.Kommande=false&hittaKurserPageModel.HittaKurserViewModel.SelectedPlatsId=0)
+[sdcn](https://www.staforum.se/sdcn/join-sdcn/)
+
+[start business](https://bokanyforetagarradgivning.stockholm.se/)
+
+[ruidian paimai](https://www.tradera.com/item/302393/646623578/fynda-macbook-pro-retina-15-i7-2-5-ghz-16gb-512gb-mycket-fin-billigt-)
+[瑞典 livehouse](https://gamlaenskedebryggeri.se/pa-gang/)
+[rock](https://myrockshows.com/location/248-stockholm/)
+[找专业网站]()
+
+ 紧急拨打电话 112    警察非紧急报案电话11414 （中国电话 0046-771141400）
